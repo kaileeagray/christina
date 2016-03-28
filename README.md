@@ -8,4 +8,5 @@ This is a site for Christina's clients, coaches, and anyone wanting to read more
 
 # Contact
 
-email: kaileeagray@gmail.com
+Web related inquires: kaileeagray@gmail.com
+Fitness, beachbody inquires: Christina.Holmes2012@gmail.com
